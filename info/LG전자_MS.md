@@ -1,4 +1,4 @@
-# 🪙 LG전자
+# 🪙 LG전자 MS사업본부
 공식 접수 마감은 **2026년 9월 13일 23시**입니다. 세부 직무는 첨부한 [MS사업본부 Finance 채용공고](https://www.catch.co.kr/NCS/RecruitInfoDetails/567424)를 기준으로 확인하고, 최종 제출 조건은 [2026년 하반기 LG전자 채용 홈페이지](https://www.lge-recruit.com/)에서 다시 확인하는 것이 안전합니다.
 
 ## 먼저 잡아야 할 전체 방향
